@@ -1,0 +1,1 @@
+# Shoprite-NG-Store-Bot_Power-Virtual-Agent
